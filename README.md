@@ -8,3 +8,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Yhustya Restu Wardhana, [Linkdin](www.linkedin.com/in/yhustya-wardhana-2622492b4).
